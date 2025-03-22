@@ -2,7 +2,7 @@
 
 ### From 🇲🇽
 
-##🚀 Web Developer 💻
+## 🚀 Web Developer 💻
 
 👨‍🎓 Computer Engineering Graduate from UPIICSA 💚
 
